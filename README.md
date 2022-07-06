@@ -2,6 +2,15 @@
 Attractive Template Link
 
 
+impppp
+http://bilalmghl.online/html/hotel/onepage-demo/index.html
+https://www.blocksdxb.com/
+
+http://www.nicdarkthemes.com/themes/hotel-booking/wp/demo/luxury/
+http://bilalmghl.online/html/hotel/light-demo/index.html
+
+
+
 https://www.sfshomes.com/
 https://www.birlaestates.com/birla-tisya-rajajinagar/
 https://lifestylehousing.in/le-paradis-poject.html
