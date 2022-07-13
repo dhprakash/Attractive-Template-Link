@@ -3,6 +3,7 @@ Attractive Template Link
 
 12-7-22
 https://houzy.wpengine.com/
+https://webstrot.com/html/hotelier/hotelier/index-02.html
 
 AMENITIES
 https://www.realestateindia.com/property-detail/commercial-shops-for-sale-in-chandni-chowk-delhi-in-omaxe-chowk-400-sq-ft-45-lac-1033804.htm
