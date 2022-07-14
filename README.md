@@ -19,6 +19,14 @@ https://www.irctctourism.com/
 https://dir.indiamart.com/impcat/package-tours.html
 https://www.kesari.in/
 https://www.gtholidays.in/
+https://www.tourradar.com/--
+https://www.sotc.in/
+https://www.nirmalatravels.com/
+https://www.veenaworld.com/
+https://traveltriangle.com/
+https://www.akshartours.com/
+https://www.bestvoyage.in/--
+https://www.flamingotravels.co.in/
 
 12-7-22
 https://houzy.wpengine.com/
