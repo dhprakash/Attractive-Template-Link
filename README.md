@@ -43,6 +43,8 @@ https://www.tourtravelworld.com/
 https://www.travelandtourworld.com/
 https://www.thomascook.in/
 https://www.balitourpackages.in.net/
+https://www.skyworldtours.co.in/
+https://www.riya.travel/
 
 12-7-22
 https://houzy.wpengine.com/
