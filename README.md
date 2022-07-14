@@ -6,6 +6,8 @@ facebook Script
 https://www.bharatbooking.com/
 
 Offer Pages
+https://www.worldtradetours.com/
+https://www.jastourism.com/---
 https://www.bharatbooking.com/
 https://www.sotc.in/india-tour-packages
 https://rajasthanholidays.co.in/
