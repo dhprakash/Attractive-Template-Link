@@ -1,6 +1,18 @@
 # Attractive-Template-Link
 Attractive Template Link
 
+Offer Pages
+https://www.sotc.in/india-tour-packages
+https://rajasthanholidays.co.in/
+https://www.easemytrip.com/holiday-packages.html
+https://www.akbartravels.com/holidays/india-tour-packages
+https://www.tourmyindia.com/packagetours.html
+https://www.indianholiday.com/
+https://www.veenaworld.com/india
+https://traveltriangle.com/tour-packages/india
+https://www.makemytrip.com/holidays-india/
+https://www.yatra.com/india-tour-packages/holidays-in-kashmir
+
 12-7-22
 https://houzy.wpengine.com/
 https://webstrot.com/html/hotelier/hotelier/index-02.html
