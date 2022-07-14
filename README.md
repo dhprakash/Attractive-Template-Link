@@ -2,6 +2,7 @@
 Attractive Template Link
 
 Offer Pages
+https://www.bharatbooking.com/
 https://www.sotc.in/india-tour-packages
 https://rajasthanholidays.co.in/
 https://www.easemytrip.com/holiday-packages.html
