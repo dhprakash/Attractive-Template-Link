@@ -27,6 +27,12 @@ https://traveltriangle.com/
 https://www.akshartours.com/
 https://www.bestvoyage.in/--
 https://www.flamingotravels.co.in/
+https://www.tourmyindia.com/
+https://www.top-travels.com/
+https://www.shikhar.com/
+https://www.himachaltaxitrip.com/
+https://www.vivekanandatravelspltd.com/
+https://www.timesindiatravels.com/
 
 12-7-22
 https://houzy.wpengine.com/
