@@ -13,6 +13,12 @@ https://www.veenaworld.com/india
 https://traveltriangle.com/tour-packages/india
 https://www.makemytrip.com/holidays-india/
 https://www.yatra.com/india-tour-packages/holidays-in-kashmir
+https://www.tourism-of-india.com/
+https://www.southerntravelsindia.com/
+https://www.irctctourism.com/
+https://dir.indiamart.com/impcat/package-tours.html
+https://www.kesari.in/
+https://www.gtholidays.in/
 
 12-7-22
 https://houzy.wpengine.com/
