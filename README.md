@@ -1,6 +1,18 @@
 # Attractive-Template-Link
 Attractive Template Link
 
+16-7-22
+https://www.easemytrip.com/hotels
+https://www.easemytrip.com/cabs
+https://www.sotc.in/
+https://www.top-travels.com/inbound-tours/index.html
+https://www.vivekanandatravelspltd.com/
+https://www.vivekanandatravelspltd.com/destinations/maharashtra
+https://www.sotc.in/india-tour-packages
+https://www.worldtradetours.com/
+https://www.magicbricks.com/propertyservices/property-valuation
+https://www.magicbricks.com/decor/
+https://www.magicbricks.com/
 
 facebook Script
 https://www.bharatbooking.com/
