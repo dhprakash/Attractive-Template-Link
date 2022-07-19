@@ -1,6 +1,13 @@
 # Attractive-Template-Link
 Attractive Template Link
 
+
+19-7-22
+Floor Plan
+https://www.urbanrise.in/projects/hyderabad/on-cloud-33
+https://www.amaryllisdelhi.com/
+https://miraclebay.in/
+
 16-7-22
 https://www.veenaworld.com/------------
 https://www.easemytrip.com/hotels
