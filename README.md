@@ -2,11 +2,13 @@
 Attractive Template Link
 
 
+
 19-7-22
 Floor Plan
 https://www.urbanrise.in/projects/hyderabad/on-cloud-33
 https://www.amaryllisdelhi.com/
 https://miraclebay.in/
+https://www.magicbricks.com/tenantverification/index.html
 
 16-7-22
 https://www.veenaworld.com/------------
