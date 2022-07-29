@@ -11,6 +11,17 @@ https://www.veenaworld.com/package/austria-swiss-tour-package-euas
 https://www.sotc.in/india-tour-packages
 https://www.indianholiday.com/--amenities
 https://www.easemytrip.com/hotels--amenities
+https://www.deltait.co.in/  -contact
+https://www.cyberworx.in/
+https://www.deltait.co.in/portfolio/
+https://www.adglobal360.com/our-work
+https://www.libertyinsurance.in/
+https://www.fenesta.com/
+https://www.webguru-india.com/------
+https://www.webguru-india.com/portfolio/website
+
+
+
 
 https://www.indianholiday.com/tour-packages-india/golden-triangle-tour.html
 https://www.thomascook.in/holidays/international-tour-packages/europe-tour-packages/europe-for-all?pkgId=PKG003193&packageClassId=0&destination=PKG003193_europe_CONTINENT_1&destTag=Switzerland     ---Brouchre
