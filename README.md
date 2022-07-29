@@ -4,6 +4,18 @@ Attractive Template Link
 
 29-7-22
 https://www.squareyards.com/delhi-real-estate
+https://www.makemytrip.com/holidays-india/ ---Brouchre
+https://www.thomascook.in/--amenities
+https://www.easemytrip.com/hotels--amenities
+https://www.veenaworld.com/package/austria-swiss-tour-package-euas
+https://www.sotc.in/india-tour-packages
+https://www.indianholiday.com/--amenities
+https://www.easemytrip.com/hotels--amenities
+
+https://www.indianholiday.com/tour-packages-india/golden-triangle-tour.html
+https://www.thomascook.in/holidays/international-tour-packages/europe-tour-packages/europe-for-all?pkgId=PKG003193&packageClassId=0&destination=PKG003193_europe_CONTINENT_1&destTag=Switzerland     ---Brouchre
+
+https://www.yatra.com/india-tour-packages/holidays-in-andaman --- payment
 
 21-7-22
 web development company india
