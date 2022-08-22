@@ -2,6 +2,7 @@
 Attractive Template Link
 ----------------------------------------------------------------------------
 Property
+http://themes.ongoingthemes.com/gootravel-wp/
 https://demo.themexbd.com/rtl/realet/--------------------------
 https://razor-real-estate.webflow.io/
 https://alley-real-estate-template.webflow.io/
