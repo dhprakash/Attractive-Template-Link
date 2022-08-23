@@ -1,6 +1,13 @@
 # Attractive-Template-Link
 Attractive Template Link
 ----------------------------------------------------------------------------
+
+pdf 
+http://zwin.io/html/realdeal/contact.html
+https://livewp.site/wp/md/ewebot/contact-us/
+https://www.manchester.ac.ae/programmes/msc-real-estate-download-brochure
+https://www.in4velocity.com/
+
 Property
 https://makaanlelo.com/tf_products_007/cargozone/xhtml/cargo-home-style-1.html
 https://upfronthtml.websitelayout.net/
