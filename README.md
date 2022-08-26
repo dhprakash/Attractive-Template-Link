@@ -1,6 +1,12 @@
 # Attractive-Template-Link
 Attractive Template Link
 ----------------------------------------------------------------------------
+Effect
+https://www.indonez.com/html-demo/Wave/
+https://themexriver.com/fastrans-theme/fastrans/home-page-02/
+
+Brochre
+https://rn53themes.net/themes/demo/education-master/admission.html
 
 pdf 
 http://zwin.io/html/realdeal/contact.html
