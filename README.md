@@ -3,6 +3,9 @@ Attractive Template Link
 ----------------------------------------------------------------------------
 
 8-9-22
+https://www.templatemonster.com/category/travel-website-templates/?sort=bestsellers&page=4
+https://demo.themeies.com/travers/
+https://html.dreamitsolution.net/turner/
 https://themes.ongoingthemes.com/gootravel-landing/
 https://wp.dreamitsolution.net/visapro-preview/
 https://preview.ongoingthemes.com/gootravel/-------------
