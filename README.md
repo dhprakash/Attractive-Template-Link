@@ -3,6 +3,7 @@ Attractive Template Link
 ----------------------------------------------------------------------------
 
 8-9-22
+https://preview.ongoingthemes.com/gootravel/
 https://chicago.wpresidence.net/
 https://wpresidence.net/
 https://oakland.wpresidence.net/
