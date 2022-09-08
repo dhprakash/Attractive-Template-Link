@@ -3,6 +3,7 @@ Attractive Template Link
 ----------------------------------------------------------------------------
 
 8-9-22
+https://themes.ongoingthemes.com/gootravel-landing/
 https://wp.dreamitsolution.net/visapro-preview/
 https://preview.ongoingthemes.com/gootravel/-------------
 http://themes.ongoingthemes.com/traveltime/
