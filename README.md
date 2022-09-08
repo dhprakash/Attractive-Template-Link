@@ -3,6 +3,18 @@ Attractive Template Link
 ----------------------------------------------------------------------------
 
 8-9-22
+https://chicago.wpresidence.net/
+https://wpresidence.net/
+https://oakland.wpresidence.net/
+https://kyiv.wpresidence.net/
+https://beijing.wpresidence.net/
+https://rome.wpresidence.net/
+https://demo5.wpresidence.net/
+https://london.wpresidence.net/
+
+https://milano.wpestatetheme.org/
+https://miami.wpestatetheme.org/
+https://fr.wpresidence.net/
 https://staging.webdesigntexas.us/real_estate/  -----Real Esate
 https://etl.wedevsteam.com/
 https://cutesolution.com/html/reflex/
