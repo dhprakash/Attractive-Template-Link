@@ -3,6 +3,7 @@ Attractive Template Link
 ----------------------------------------------------------------------------
 
 8-9-22
+https://slidesigma.nyc/templatemonster/html/conticota/queens/
 https://www.templatemonster.com/category/travel-website-templates/?sort=bestsellers&page=4
 https://demo.themeies.com/travers/
 https://html.dreamitsolution.net/turner/
