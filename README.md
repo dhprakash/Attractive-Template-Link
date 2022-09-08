@@ -23,6 +23,14 @@ http://themetechmount.net/html/kaccy/home-orthopedic.html
 https://themetechmount.com/html/altech/index.html
 https://themetechmount.com/html/uniaro/index.html
 https://themetechmount.com/html/zester/header-style-03.html
+http://themetechmount.com/html/fondex/index.html
+https://themetechmount.com/html/capitallaw/header-style4/index.html
+https://themetechmount.com/html/delmont/dentist/
+http://themetechmount.com/html/delmont/index.html
+http://themetechmount.com/html/planwey/header-classic.html
+http://themetechmount.com/html/planwey/index.html
+http://themetechmount.com/html/boldman/index.html
+https://themetechmount.com/html/tectxon/home-5.html
 
 Effect
 https://www.creatorswebindia.com/
