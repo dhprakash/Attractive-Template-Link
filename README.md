@@ -3,7 +3,14 @@ Attractive Template Link
 ----------------------------------------------------------------------------
 
 8-9-22
-https://preview.ongoingthemes.com/gootravel/
+https://wp.dreamitsolution.net/visapro-preview/
+https://preview.ongoingthemes.com/gootravel/-------------
+http://themes.ongoingthemes.com/traveltime/
+https://live.themewild.com/travelox/
+
+https://live.themewild.com/airfly/
+https://live.themewild.com/rosewod/-------
+https://html.dreamitsolution.net/tourist/
 https://chicago.wpresidence.net/
 https://wpresidence.net/
 https://oakland.wpresidence.net/
