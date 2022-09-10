@@ -38,6 +38,11 @@ https://ld-wt73.template-help.com/wt_prod-25851/landing/
 https://templatemonster.vecuro.com/html/immohaus/
 https://staging.webdesigntexas.us/real_estate/-----------
 https://etl.wedevsteam.com/
+https://html.dreamitsolution.net/dex/---------------------
+https://impiantiantigrandine.it/cg3/
+https://primehostingindia.com/templatemonster/html/pasterz/
+http://slidesigma.com/themes/html/cali-constructions/----------
+https://flexcode.xyz/consulto/home-1.html
 https://templatemonster.vecuro.com/html/immobilio/
 https://demo.etechplan.com/quest/
 https://code-wrapper.com/royal-homes/---------------------
@@ -61,6 +66,22 @@ https://html.dreamitsolution.net/turner/
 https://ld-wt73.template-help.com/wt_prod-25852/cute-hotel/index.html
 https://themesvila.com/themes-wp/laveria/
 https://template.labartisan.net/demos/explore/index.html
+
+https://live.themewild.com/restora/
+https://live.themewild.com/logistox/
+https://ld-wt73.template-help.com/wt_61270/
+https://live.themewild.com/travelox/
+https://livedemo00.template-help.com/wt_prod-20037/
+https://html.dreamitsolution.net/dreamit/handyman/
+https://html.dreamitsolution.net/softech/
+https://html.dreamitsolution.net/visapro/
+https://html.dreamitsolution.net/besoft/
+http://slidesigma.com/themes/html/vima/
+http://slidesigma.com/themes/html/nina/
+https://livedemo00.template-help.com/wt_prod-25523/crafter-hotel/index.html
+
+
+
 
 8-9-22
 https://slidesigma.nyc/templatemonster/html/conticota/queens/
