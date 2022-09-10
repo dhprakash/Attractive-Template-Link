@@ -51,9 +51,12 @@ https://live.themewild.com/rosewod/-----------------
 https://ld-wp.template-help.com/rockthemes/18708/
 https://takan.bikebuzzbd.com/
 https://themesvila.com/themes-wp/turista/
-
+https://garantiwebtasarim.com/life-hotel-hotel-booking/------------
 https://html.dreamitsolution.net/direct/
-
+https://html.minshark.com/humber/---------------------
+https://html.minshark.com/humber/index-1.html-------------
+https://demo.templateelementor.com/landing-pages/wonder-hill-hotel/
+https://livedemo00.template-help.com/wt_55353_v1/
 https://html.dreamitsolution.net/turner/
 https://ld-wt73.template-help.com/wt_prod-25852/cute-hotel/index.html
 https://themesvila.com/themes-wp/laveria/
