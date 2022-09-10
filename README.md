@@ -79,7 +79,18 @@ https://html.dreamitsolution.net/besoft/
 http://slidesigma.com/themes/html/vima/
 http://slidesigma.com/themes/html/nina/
 https://livedemo00.template-help.com/wt_prod-25523/crafter-hotel/index.html
-
+https://coffee-point.astemplatedesigns.com/
+https://livedemo00.template-help.com/wt_61397/
+https://primehostingindia.com/templatemonster/html/pasterz/
+https://code-wrapper.com/royal-homes/
+http://ascinate.in/projects/html/designs/subrata/ngo/design-2/
+https://ld-wt73.template-help.com/wt_62269/
+https://slidesigma.nyc/templatemonster/react/nina/
+https://rainbowdesign.in/themes/Cihema/
+https://livedemo00.template-help.com/wt_68347/
+http://theme-house.com/demo/builda/
+https://templatemonster.vecuro.com/html/naturo/naturo/index-4.html
+https://live.themewild.com/interio/
 
 
 
